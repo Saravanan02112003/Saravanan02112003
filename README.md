@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT Field
 - 🌱 I’m currently learning Full Stack Java Developer
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Instagram:__alone__boy__003_
+- 📫 How to reach me Instagram: __alone__boy__003_
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
